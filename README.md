@@ -2,15 +2,17 @@
 
 # 联系方式
 
-微信：duckCoding
+VX：duckCoding
 
-企鹅: 3820006966
+QQ: 3820006966
 
 ![在这里插入图片描述](http://upload.cxycsx.vip/91ab4bcb4f2c4c6db86365bb6d6e9c62.jpeg)
 
-# 详细视频演示
+# 2025计算机毕设选题
 
-请联系我获取更详细的演示视频
+更多计算机毕设选题，查看
+
+https://www.yuque.com/cxycsx/bve3ul
 
 # 为什么选择我
 
